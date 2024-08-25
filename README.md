@@ -7,3 +7,9 @@ Olá meu nome é Sarah Stephanie! Atualmente tenho 18 anos e estou cursando o ú
 ## Você pode entrar em contato comigor 💻
 
 email: sarahpipocastephanie@gmail.com
+
+
+
+
+
+![](https://media1.tenor.com/m/QCSQIOrY_LYAAAAd/fisheye-fluttershy-fisheye.gif)
